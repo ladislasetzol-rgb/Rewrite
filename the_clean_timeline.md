@@ -2,7 +2,7 @@
 
 **Document:** Sovereign Cognitive & Structural Analysis
 **Subject:** The Absence of Friction in the Sovereign NWO
-**Framework:** The CFR Sovereign Architecture (2099 Baseline)
+**Framework:** The CFR Sovereign Architecture (2076 Baseline)
 
 ## I. The Friction of the Old World Reality (OWR)
 

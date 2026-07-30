@@ -2,7 +2,7 @@
 
 **Document:** NWO Asymmetrical World Building
 **Subject:** The Rules of The Breath Game
-**Framework:** The CFR Sovereign Architecture (2099 Baseline)
+**Framework:** The CFR Sovereign Architecture (2076 Baseline)
 
 ## I. The Nature of the Game
 

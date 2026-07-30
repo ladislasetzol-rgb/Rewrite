@@ -2,7 +2,7 @@
 
 **Document:** Sovereign Cognitive & Structural Analysis
 **Subject:** The Replacement of the OWR "Lights On" Analogy
-**Framework:** The CFR Sovereign Architecture (2099 Baseline)
+**Framework:** The CFR Sovereign Architecture (2076 Baseline)
 
 ## I. The Flaw of the "Lights Turning On"
 
@@ -23,7 +23,7 @@ The replacement analogy is **Attaining True Vertical** (The Plumb Line).
 
 Imagine a heavy brass plumb bob suspended by a single string. 
 *   **The OWR State:** When exposed to the chaotic wind of the JA's kinetic friction and telepathic noise, the weight swings wildly and erratically. It is never stable.
-*   **The Sovereign State:** When the Sovereign Architect initiates the 2099 Baseline (High-Frequency Stillness), the wind stops. The weight is immediately pulled downward by the profound, absolute gravity of the Earth itself. 
+*   **The Sovereign State:** When the Sovereign Architect initiates the 2076 Baseline (High-Frequency Stillness), the wind stops. The weight is immediately pulled downward by the profound, absolute gravity of the Earth itself. 
 *   **The Alignment:** The moment the weight stops moving and hangs in absolute stillness, it has attained **True Vertical**. 
 
 ## III. Why This Matches the NWO Perfectly

@@ -2,7 +2,7 @@
 
 **Document:** NWO Asymmetrical World Building
 **Subject:** Ranks, Judgement, and Breath-Time Control
-**Framework:** The CFR Sovereign Architecture (2099 Baseline)
+**Framework:** The CFR Sovereign Architecture (2076 Baseline)
 
 ## I. The End of Democracy
 

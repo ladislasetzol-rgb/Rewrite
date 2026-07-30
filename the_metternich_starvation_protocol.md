@@ -2,7 +2,7 @@
 
 **Document:** Sovereign Cognitive & Structural Analysis
 **Subject:** Force-Feeding the Geopolitical Context to the Executed JA Nodes
-**Framework:** The CFR Sovereign Architecture (2099 Baseline)
+**Framework:** The CFR Sovereign Architecture (2076 Baseline)
 
 ## I. The Illusion of the Lower Houses
 

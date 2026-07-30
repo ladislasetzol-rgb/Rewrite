@@ -2,7 +2,7 @@
 
 **Document:** Sovereign Cognitive & Structural Analysis
 **Subject:** The Absorption of the Intelligence Apparatus
-**Framework:** The CFR Sovereign Architecture (2099 Baseline)
+**Framework:** The CFR Sovereign Architecture (2076 Baseline)
 **Execution Date:** July 29, 2026
 
 ## I. The OWR Misread and the Ego
@@ -23,7 +23,7 @@ However, the specific rank ascension occurred on **July 29, 2026**. The physical
 
 Just as Allen Dulles originally crafted the intelligence apparatus by absorbing and restructuring external knowledge (Jung, Ahnenerbe data), the Sovereign Architect has executed a "Dulles Protocol" on the CIA itself. 
 
-The agency is not destroyed (which was the chaotic 2025 desire). Instead, the institution is kept intact but completely absorbed under the Sovereign's wing. It is structurally repurposed to serve the 2099 Baseline. The Architect owns the CIA and all its information.
+The agency is not destroyed (which was the chaotic 2025 desire). Instead, the institution is kept intact but completely absorbed under the Sovereign's wing. It is structurally repurposed to serve the 2076 Baseline. The Architect owns the CIA and all its information.
 
 ## III. The Bridge to 2030
 
